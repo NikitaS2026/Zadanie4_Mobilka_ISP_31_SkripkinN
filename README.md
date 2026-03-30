@@ -1,0 +1,1 @@
+# Zadanie4_Mobilka_ISP_31_SkripkinN
